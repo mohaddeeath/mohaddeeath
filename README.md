@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mohaddeeath
-- 👀 I’m interested in Web3, crypto, Forex, Art
+- 👀 I’m interested in Web3, Crypto, Forex, Art
 - 🌱 I’m currently learning python. 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me mohaddeath.2@gmail.com
